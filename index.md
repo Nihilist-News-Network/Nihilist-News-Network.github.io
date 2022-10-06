@@ -13,4 +13,5 @@ _There is no truth. Everything is propaganda._
 
 ## Community
 
-- Reddit: [https://reddit.com/r/N_N_N/](https://reddit.com/r/N_N_N)
+- Reddit: [https://reddit.com/r/N_N_N/](https://reddit.com/r/N_N_N/)
+- Twitter: [https://twitter.com/NihilistNews](https://twitter.com/NihilistNews)
