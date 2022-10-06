@@ -1,6 +1,10 @@
+---
+layout: default
+---
+
 # https://nihilist.news
 
-__There is no truth. Everything is propaganda.__
+_There is no truth. Everything is propaganda._
 
 ## Telegram
 
