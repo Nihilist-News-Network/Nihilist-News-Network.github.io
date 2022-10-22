@@ -11,10 +11,14 @@ _There is no truth. Everything is propaganda._
 - News: [https://t.me/nihilistnewsnetwork](https://t.me/nihilistnewsnetwork)
 - Chat: [https://t.me/+0Oa8BSpC9g83NWYx](https://t.me/+0Oa8BSpC9g83NWYx)
 
-## Community
+## Posts
 
+- YouTube: [YouTube](https://www.youtube.com/user/Bobman617)
 - Reddit: [https://reddit.com/r/N_N_N/](https://reddit.com/r/N_N_N/)
 - Twitter: [https://twitter.com/NihilistNewsNet](https://twitter.com/NihilistNewsNet)
+
+## Community
+
 - Discord: [https://discord.gg/2FZcxh9G](https://discord.gg/2FZcxh9G)
 
 <div class="video-container">
