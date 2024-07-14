@@ -9,13 +9,13 @@ _There is no truth and everything is propaganda._
 ## Telegram
 
 - News: [https://t.me/nihilistnewsnetwork](https://t.me/nihilistnewsnetwork)
-- Chat: [https://t.me/nihilistnewsnetwork](https://t.me/nihilistnewsnetwork)
+- Chat: [https://t.me/+IIr1rROWvGQ4ZTdh](https://t.me/+IIr1rROWvGQ4ZTdh)
 
 ## Posts
 
 <!-- - YouTube: [YouTube](https://www.youtube.com/user/Bobman617) -->
 - Reddit: [https://reddit.com/r/N_N_N/](https://reddit.com/r/N_N_N/)
-<!-- - Twitter: [https://twitter.com/Th3PostNihilist](https://twitter.com/Th3PostNihilist) -->
+- Twitter: [https://twitter.com/Th3PostNihilist](https://twitter.com/Th3PostNihilist)
 
 ## Community
 
