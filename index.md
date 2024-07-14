@@ -31,6 +31,6 @@ _There is no truth and everything is propaganda._
   </iframe>
 </div>
 
-<!-- <div class="video-container">
+<div class="video-container">
 <a class="twitter-timeline" data-theme="dark" href="https://twitter.com/Th3PostNihilist?ref_src=twsrc%5Etfw">Tweets by Th3PostNihilist</a> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
-</div> -->
+</div>
