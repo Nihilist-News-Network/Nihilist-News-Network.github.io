@@ -8,14 +8,14 @@ _For those who have graduated beyond nihilism._
 
 ## Telegram
 
-- News: [https://t.me/mattmattnews](https://t.me/mattmattnews)
-- Chat: [https://t.me/ThePostNihilistChat](https://t.me/ThePostNihilistChat)
+- News: [https://t.me/nihilistnewsnetwork](https://t.me/nihilistnewsnetwork)
+- Chat: [https://t.me/ThePostNihilistChat](https://t.me/ThePostNihilistChat)](https://t.me/+IIr1rROWvGQ4ZTdh)
 
 ## Posts
 
 <!-- - YouTube: [YouTube](https://www.youtube.com/user/Bobman617) -->
 <!-- - Reddit: [https://reddit.com/r/N_N_N/](https://reddit.com/r/N_N_N/) -->
-- Twitter: [https://twitter.com/Th3PostNihilist](https://twitter.com/Th3PostNihilist)
+- X/Twitter: [https://twitter.com/NihilistNewsNet](https://twitter.com/NihilistNewsNet)
 
 ## Community
 
